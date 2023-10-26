@@ -10,3 +10,6 @@ Meu nome e Beatriz Martins Ferreira.
 ### voce pode entrar em contato comigo 📫
 
 beatriz.martins.ferreira@escola.pr.gov.br
+
+
+![](https://media.tenor.com/abY7c2fitNIAAAAC/thumb-okay.gif)
